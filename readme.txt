@@ -1,0 +1,1 @@
+Making map image
